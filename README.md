@@ -3,6 +3,10 @@
 
 intro rough link: https://youtu.be/XRv1SVyqz3s
 intro final link: https://youtu.be/MTVfZydfvig
+
+full length rough link: https://youtu.be/10wL7WVmU4E
+
+
 ## Summary
 I want to demonstrate how flexible walls show the creativity of renters, accommodating for extenuating life circumstances, to create a better space for themselves. I will argue that temporary walls allow for more living options for renters, and more options are often beneficial as long as renters are aware of the detriments as well as the benefits such a decision could bring. I also want to comment on how flexible walls are heavily restricted by New York City Housing Authority (Rent Own Sell New York), and landlords, to ensure that all bedroom spaces fit proper bedroom standards. Finally, I will explore how pricing, regulation, and renter desires are in tension in this complicated housing market.
 
