@@ -22,29 +22,26 @@ By viewing or reading this analysis, you acknowledge that it is provided in a co
 
 ### Links
 
-What is a Flex Wall? (YouTube)
-https://www.youtube.com/watch?v=tF44s7FCbcs
-
-Temporary Pressurized Walls in NYC (TikTok)
-https://www.tiktok.com/@quickwallsnyc/video/7234984191002447150
-
-1DayWall’s Demo (YouTube)
-https://www.youtube.com/watch?v=Xs-G6LS9RRw
-
-DIY Renter’s Wall (YouTube)
-https://www.youtube.com/watch?v=XUFaHnL3-R0
-
-IKEA Kallax Room Divider Hack (YouTube)
-https://www.youtube.com/watch?v=hMhmkaYJ4YU
-
-Manhattan Flex Apartment Tour ($1,875/month) (YouTube)
+Manhattan Flex Apartment Tour ($1,875/month) (Taylor Bell, YouTube)
 https://www.youtube.com/watch?v=2ABFuMGkp9k
 
-One-Bedroom Flex in Hudson Yards (YouTube)
-https://www.youtube.com/watch?v=4z8W8tX6Lt8
+What is a Flex Wall? (Rent Own Sell, YouTube)
+https://www.youtube.com/watch?v=tF44s7FCbcs
 
-TikTok Flex Room Showcase (TikTok)
-https://www.tiktok.com/@jennyfromtheblock_0/video/7253449732671098158
+Temporary Pressurized Walls in NYC (quickwallsnyc, TikTok)
+https://www.tiktok.com/@quickwallsnyc/video/7234984191002447150
 
-Studio Apartment Flex Wall Transformation (YouTube)
+Studio Apartment Flex Wall Transformation (Shely Home Design, YouTube)
 https://www.youtube.com/watch?v=XUFaHnL3-R0
+
+1DayWall’s Demo (1DayWall, YouTube)
+https://www.youtube.com/watch?v=Xs-G6LS9RRw
+
+DIY Renter’s Wall (Shely Home Design, YouTube)
+https://www.youtube.com/watch?v=XUFaHnL3-R0
+
+IKEA Kallax Room Divider Hack (TheSorryGirls, YouTube)
+https://www.youtube.com/watch?v=hMhmkaYJ4YU
+
+TikTok Flex Room Showcase (jennyfromtheblock_0, TikTok)
+https://www.tiktok.com/@jennyfromtheblock_0/video/7253449732671098158
