@@ -31,6 +31,9 @@ https://www.youtube.com/watch?v=tF44s7FCbcs
 Temporary Pressurized Walls in NYC (quickwallsnyc, TikTok)
 https://www.tiktok.com/@quickwallsnyc/video/7234984191002447150
 
+New York Housing Authority residental restrictions (New York Housing Authority)
+https://www.nyc.gov/site/nycha/section-8/housing-quality-standards.page
+
 Studio Apartment Flex Wall Transformation (Shely Home Design, YouTube)
 https://www.youtube.com/watch?v=XUFaHnL3-R0
 
