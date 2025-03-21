@@ -1,10 +1,7 @@
-# video-essay-project
- Video Essay on Temporary Walls
+# Can Temporary Walls Flex into Your Life?
+Video Essay on Temporary Walls
 
-intro rough link: https://youtu.be/XRv1SVyqz3s
-intro final link: https://youtu.be/MTVfZydfvig
-
-full length rough link: https://youtu.be/10wL7WVmU4E
+full length final link: https://youtu.be/vzOYmiIsOdU
 
 
 ## Summary
@@ -48,3 +45,13 @@ https://www.youtube.com/watch?v=hMhmkaYJ4YU
 
 TikTok Flex Room Showcase (jennyfromtheblock_0, TikTok)
 https://www.tiktok.com/@jennyfromtheblock_0/video/7253449732671098158
+
+## Development History
+
+full length final link: https://youtu.be/vzOYmiIsOdU
+
+full length rough link: https://youtu.be/10wL7WVmU4E
+
+intro final link: https://youtu.be/MTVfZydfvig
+
+intro rough link: https://youtu.be/XRv1SVyqz3s
