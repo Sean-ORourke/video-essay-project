@@ -1,11 +1,17 @@
 # Can Temporary Walls Flex into Your Life?
 Video Essay on Temporary Walls
 
+## Summary
+
 full length final link: https://youtu.be/vzOYmiIsOdU
 
 
-## Summary
 I want to demonstrate how flexible walls show the creativity of renters, accommodating for extenuating life circumstances, to create a better space for themselves. I will argue that temporary walls allow for more living options for renters, and more options are often beneficial as long as renters are aware of the detriments as well as the benefits such a decision could bring. I also want to comment on how flexible walls are heavily restricted by New York City Housing Authority (Rent Own Sell New York), and landlords, to ensure that all bedroom spaces fit proper bedroom standards. Finally, I will explore how pricing, regulation, and renter desires are in tension in this complicated housing market.
+
+From my research, many have done research on this topic by living it - they have created content of themselves putting up temporary walls - walkthroughs of their apartment with a temporary wall in it. Temporary wall companies make videos and websites to explain what temporary walls are, what different types are, and (of course) follow it up with their price points. I am adding to this conversation by consolidating a generalized overview. This allows viewers to get a broader context of the options, without nessicarily living it.
+
+I realized when creating a video essay, I often think of the literal essay first. Then, all of the visuals, sound, and gags as I am editing the essay. Creating the video essay is very much separated into two parts in this way.
+Suggestions from my peers aided me in adding extra information on what viewers may want, leading me to put more emphasis on wall customization options, and price. Visual feedback from peers aided me in enhancing the visual clarity of wall diagrams with aids - like circling where the pressurized walls pressed against the permanent walls. Finally, compliments from peers inspired me to continue refining, and be confident in my video essay. Thank you to all my reviewers!
 
 ## Credits
 
